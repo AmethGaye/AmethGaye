@@ -44,4 +44,4 @@ L’objectif est de permettre aux étudiants de retrouver des informations fiabl
 ## Contact
 
 **Localisation :** Pikine, Dakar, Sénégal  
-**E-mail :** [amethgaye1401@gmail.com](mailto:amethgaye1401@gmail.com) | **Téléphone :** `78 453 20 81` ou `76 825 52 33`
+**E-mail :** [amethgaye1401@gmail.com](mailto:amethgaye1401@gmail.com)  |  **Téléphone :** `78 453 20 81` ou `76 825 52 33`
